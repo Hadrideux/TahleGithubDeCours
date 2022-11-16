@@ -1,2 +1,0 @@
-# TahleGithubDeCours
-Wesh ma gueule
